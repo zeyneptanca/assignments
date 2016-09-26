@@ -38,8 +38,24 @@ Leadership Program” granted for curriculum vitae and interview
 * 2012-2013 Fall, 2013-2014 Fall, 2014-2015 Fall: Dean’s Honor List
 
 ## SKILLS & ABILITIES
-### LANGUAGES
-* Turkish – Native speaker
-* English – Advanced (IELTS-8/9)
-* German – Intermediary (Sprachdiplom C1)
+* **LANGUAGES**
+  * Turkish – Native speaker
+  * English – Advanced (IELTS-8/9)
+  * German – Intermediary (Sprachdiplom C1)
+  
+* **COMPUTER SKILLS**  
+  * Good command of Microsoft Office™ tools, Basic level Stata, Basic level SAP
+ 
+## PAPERS
+* _Effect of Robotics on Labor Markets and Welfare Policies_
+
+## EXTRACURRICULAR ACTIVITIES
+* 2013-2015 : Peer Tutor at Sabanci University
+* 2013-Sept.2015: Sabanci Uni. Economics and Management Society Member of Board
+* 2013-2015: Sabanci University Career Office Assistant
+* March 2013-September 2014: Carbon Disclosure Project Turkey (CDP); Assistant at Sabanci University
+* June-July 2013: AIESEC Global Community Development Program Internship - Ajyal Leadership Program, Bahrain
+* March 6th 2015: The York Finance Conference, UK
+(This conference is the largest internationally student-run finance conference in Europe.)
+
 
