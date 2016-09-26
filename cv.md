@@ -58,4 +58,7 @@ Leadership Program” granted for curriculum vitae and interview
 * March 6th 2015: The York Finance Conference, UK
 (This conference is the largest internationally student-run finance conference in Europe.)
 
+## CERTIFICATES
+* Research Turkey Academy Summer School’s “Business Management and Leadership Program” August 10th -21st 2015, London/UK (gained a partial scholarship from Research Turkey)
+
 
